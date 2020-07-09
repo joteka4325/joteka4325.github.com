@@ -1,2 +1,2 @@
-# palitra.github.io
+# joteka4325.github.io
 палитра
