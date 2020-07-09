@@ -1,0 +1,2 @@
+# palitra.github.io
+палитра
